@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Arctic-Gif
+- 👋 Hi, I’m James Wyatt
 - 👀 I’m interested in running, pokemon, and all things tech!
 - 🌱 I’m currently going through a boot camp and learning alot!!
 - 💞️ I’m looking to collaborate on ...
